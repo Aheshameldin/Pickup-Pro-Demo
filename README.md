@@ -1,6 +1,6 @@
 Pickup Pro Demo Part 1
 
-https://github.com/user-attachments/assets/3f8faa51-62b7-4c4d-a32d-c7dfd05f2082
+https://github.com/user-attachments/assets/8ec5a3ce-4527-484b-8069-768128e7434c
 
 Pickup Pro Demo Part 2
 
